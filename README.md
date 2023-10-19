@@ -13,7 +13,7 @@
       https://www.dicoding.com/certificates/NVP781934XR0
       https://www.dicoding.com/certificates/98XWVRYE9PM3
 
-- 🥥 Telah mengikuti Program E-Learning My Skill
+- 🥥 Sedang mengikuti Program E-Learning My Skill
       
 - ⚡ Telah mengikuti Program Short Class My SKill
   
