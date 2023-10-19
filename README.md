@@ -5,7 +5,7 @@
 - 👓  Berusia 17 tahun
 - 🎈  Saat ini berkuliah di Universitas Mulawarman Program Studi S-1 Kimia
 
-- 🌱 Sedang mempelajati keunikan Bidang Kimia dan Bidang Data 
+- 🌱 Sedang mempelajari keunikan Bidang Kimia dan Bidang Data 
 
 - 👯 Telah mengikuti Program Dicoding for University Batch 2
   
