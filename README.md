@@ -23,6 +23,7 @@
       https://www.linkedin.com/posts/striakmal_membuat-research-plan-yang-menginspirasi-activity-7111706686716866560-v8cK?utm_source=share&utm_medium=member_desktop
       
 - 📫 Hubungi saya
+  
       www.linkedin.com/in/striakmal
       muhakmal0542@gmail.com
     
