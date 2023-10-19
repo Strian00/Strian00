@@ -1,7 +1,9 @@
 ### Hi Kawan 👋👋👋
 
 
-- 🔭 Saat ini berkuliah di Universitas Mulawarman Program Studi S-1 Kimia
+- 🔭  Saya Muhammad Akmal Wahyu Satrian
+- 👓  Berusia 17 tahun
+- 🎈  Saat ini berkuliah di Universitas Mulawarman Program Studi S-1 Kimia
 
 - 🌱 Sedang mempelajati keunikan Bidang Kimia dan Bidang Data 
 
@@ -11,7 +13,7 @@
       https://www.dicoding.com/certificates/NVP781934XR0
       https://www.dicoding.com/certificates/98XWVRYE9PM3
       
-- ⚡ Telah mengikuti program short class My SKill
+- ⚡ Telah mengikuti Program Short Class My SKill
   
       https://www.linkedin.com/posts/striakmal_short-class-microsoft-basic-excel-activity-7100825042036428800-E9Tw?utm_source=share&utm_medium=member_desktop
       https://www.linkedin.com/posts/striakmal_mengoptimalkan-keahlian-dalam-microsoft-excel-activity-7111706047869849600-vpQD?utm_source=share&utm_medium=member_desktop
