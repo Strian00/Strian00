@@ -7,7 +7,7 @@
 
 - 🌱 Sedang mempelajari keunikan Bidang Kimia dan Bidang Data 
 
-- 👯 Telah mengikuti Program Dicoding for University Batch 2
+- 🚀 Telah mengikuti Program Dicoding for University Batch 2
   
       https://www.dicoding.com/certificates/MRZMQ28NRPYQ
       https://www.dicoding.com/certificates/NVP781934XR0
@@ -27,7 +27,7 @@
 - 📫 Hubungi saya
   
       www.linkedin.com/in/striakmal
-      muhakmal0542@gamil.com
+      muhakmal5819@gmail.com
     
 
 
