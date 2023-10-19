@@ -25,7 +25,7 @@
 - 📫 Hubungi saya
   
       www.linkedin.com/in/striakmal
-      muhakmal0542@yahoo.com
+      muhakmal0542@gamil.com
     
 
 
