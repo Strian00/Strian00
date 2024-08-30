@@ -2,13 +2,18 @@
 
 
 - 🔭  Saya Muhammad Akmal Wahyu Satrian
-- 👓  Berusia 17 tahun
+- 👓  Berusia 18 tahun
 - 🎈  Saat ini berkuliah di Universitas Mulawarman Program Studi S-1 Kimia
 
-- 🌱 Sedang mempelajari keunikan Bidang Kimia dan Bidang Data 
+- 🌱 Sedang mempelajari keunikan Bidang Kimia dan Bidang Data
 
+- ✨Telah mengikuti Komunitas Novo Club
+      Group Project Novo Club in Action di Kota Samarinda dengan isu pendidikan
+      https://www.instagram.com/reel/C-UHlMIp1vf/
+      Volunteer Regional Project Kota Samarinda dengan isu Kesehatan Kanker
+      https://www.instagram.com/p/C_KBfe7S1rh/
+    
 - 🚀 Telah mengikuti Program Dicoding for University Batch 2
-  
       https://www.dicoding.com/certificates/MRZMQ28NRPYQ
       https://www.dicoding.com/certificates/NVP781934XR0
       https://www.dicoding.com/certificates/98XWVRYE9PM3
@@ -16,7 +21,6 @@
 - 🥥 Sedang mengikuti Program E-Learning My Skill
       
 - ⚡ Telah mengikuti Program Short Class My SKill
-  
       https://www.linkedin.com/posts/striakmal_short-class-microsoft-basic-excel-activity-7100825042036428800-E9Tw?utm_source=share&utm_medium=member_desktop
       https://www.linkedin.com/posts/striakmal_short-class-digital-marketing-creative-copywriting-activity-7103015723991539712-RTO0?utm_source=share&utm_medium=member_desktop
       https://www.linkedin.com/posts/striakmal_short-class-sql-activity-7108102663896014848-uhrN?utm_source=share&utm_medium=member_desktop
